@@ -1,2 +1,2 @@
-![jith1](jith1.jpeg)
+![jith1](jith1.jpg)
 
