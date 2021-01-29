@@ -1,2 +1,2 @@
-![jithu](jithu.peg)
+![jithu](jithu.jpeg)
 
