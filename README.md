@@ -1,2 +1,2 @@
-![jith1](jith1.jpg)
+![jith1](https://www.google.com/imgres?imgurl=https%3A%2F%2Flookaside.fbsbx.com%2Flookaside%2Fcrawler%2Fmedia%2F%3Fmedia_id%3D347114233399722&imgrefurl=https%3A%2F%2Fwww.facebook.com%2Fpages%2Fcategory%2FArtist%2FJithuszz-101230774654737%2F&tbnid=hAbAJU_MtuO8DM&vet=12ahUKEwiZqYKL6MDuAhXvrmMGHU95BisQMygMegQIARA9..i&docid=aJDk51SNrZV0bM&w=1440&h=1800&q=jithuszz%20biography&safe=active&ved=2ahUKEwiZqYKL6MDuAhXvrmMGHU95BisQMygMegQIARA9)
 
