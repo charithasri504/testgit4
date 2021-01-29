@@ -1,2 +1,1 @@
-# display image
-https://www.google.com/imgres?imgurl=https%3A%2F%2Flookaside.fbsbx.com%2Flookaside%2Fcrawler%2Fmedia%2F%3Fmedia_id%3D101231617987986&imgrefurl=https%3A%2F%2Fwww.facebook.com%2FJithuszz-101230774654737%2Fposts&tbnid=7-CnrxnDLQd9iM&vet=12ahUKEwiZqYKL6MDuAhXvrmMGHU95BisQMygDegQIARAp..i&docid=Tp_BxNBv3y-BGM&w=960&h=960&q=jithuszz%20biography&safe=active&ved=2ahUKEwiZqYKL6MDuAhXvrmMGHU95BisQMygDegQIARAp
+![jithu](jithu.jpg)
